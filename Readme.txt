@@ -1,1 +1,0 @@
-# Programmlasdirmanin Esaslari
